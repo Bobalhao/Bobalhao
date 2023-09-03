@@ -1,4 +1,4 @@
-### Hi there 👋
+### Eu respeito pretos e viados👋
 
 <!--
 **Bobalhao/Bobalhao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
